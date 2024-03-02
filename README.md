@@ -1,0 +1,1 @@
+# Projectakhir_analisisdata
